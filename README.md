@@ -1,0 +1,6 @@
+- 👋 Olá, sou @Milenyfernanda
+- 👀 Estou interessado em estudar 
+- 🌱 Atualmente estou aprendendo criuar sites
+- 💞️ Procuro colaborar em tudo
+- 📫 Como entrar em contato comigo @kksk.miih ou @tropa_do_barulhooo
+-   ![](https://media.tenor.com/OzPYPcyW98oAAAAC/tavato.gif)
